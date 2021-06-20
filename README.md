@@ -1,0 +1,1 @@
+Vanilla ice cream was introduced to the United States when Thomas Jefferson discovered the flavor in France and brought the recipe to the United States. During the 1780s, Thomas Jefferson wrote his own recipe for vanilla ice cream. The recipe is housed at the Library of Congress.
